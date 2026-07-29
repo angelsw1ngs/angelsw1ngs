@@ -6,7 +6,7 @@
 You'll mostly find me in the Marvel area (cause most of my ponies are x-men)
 
 
-Please feel free to INT, I love chatting!!
+Please feel free to INT, I love chatting!! And add me in Marvel rivals I love finding new people to play with (user: Evieeo7)
 
 
 DNI - basic DNI (transphobes, homophobes, zionists, racists, etc), proshippers, under 18 and just any weirdos honestly.
